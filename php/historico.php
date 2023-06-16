@@ -1,0 +1,1 @@
+<meta http-equiv="refresh" content="0; URL='https://senaivotuporanga.com.br/nr12/controller/historico/leitura_historico.php'">
